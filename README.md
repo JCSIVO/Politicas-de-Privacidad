@@ -1,4 +1,4 @@
-# Politicas-Novena-Teja-2026
+# Política de Privacidad
 Políticas sobre la novena de la Teja
 Políticas sobre Thirty Seconds Games
 
